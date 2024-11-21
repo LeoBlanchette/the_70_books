@@ -2,9 +2,9 @@
 
 
 
-**[1:1]** The second book of the prophet Esdras, the son of Saraias, the son of Azarias, the son of Helchias, the son of Sadamias, the sou of Sadoc, the son of Achitob,
+**[1:1]** The second book of the prophet Esdras, the son of Saraias, the son of Azarias, the son of Helchias, the son of Sadamias, the son of Sadoc, the son of Achitob,
 
-**[1:2]** The son of Achias, the son of Phinees, the son of Heli, the son of Amarias, the son of Aziei, the son of Marimoth, the son of And he spake unto the of Borith, the son of Abisei, the son of Phinees, the son of Eleazar,
+**[1:2]** The son of Achias, the son of Phinees, the son of Heli, the son of Amarias, the son of Aziei, the son of Marimoth, the son of Borith, the son of Abisei, the son of Phinees, the son of Eleazar,
 
 **[1:3]** The son of Aaron, of the tribe of Levi; which was captive in the land of the Medes, in the reign of Artexerxes king of the Persians.
 
@@ -48,7 +48,7 @@
 
 **[1:23]** I gave you not fire for your blasphemies, but cast a tree in the water, and made the river sweet.
 
-**[1:24]** What shall I do unto thee, O Jacob? thou, Juda, wouldest not obey me: I will turn me to other nations, and unto those will I give my name, that they may keep my statutes.
+**[1:24]** What shall I do unto thee, O Jacob? thou, Judah, wouldest not obey me: I will turn me to other nations, and unto those will I give my name, that they may keep my statutes.
 
 **[1:25]** Seeing ye have forsaken me, I will forsake you also; when ye desire me to be gracious unto you, I shall have no mercy upon you.
 
@@ -96,7 +96,7 @@
 
 **[2:7]** Let them be scattered abroad among the heathen, let their names be put out of the earth: for they have despised my covenant.
 
-**[2:8]** Woe be unto thee, Assur, thou that hidest the unrighteous in thee! O thou wicked people, remember what I did unto Sodom and Gomorrha;
+**[2:8]** Woe be unto thee, Asher, thou that hidest the unrighteous in thee! O thou wicked people, remember what I did unto Sodom and Gomorrha;
 
 **[2:9]** Whose land lieth in clods of pitch and heaps of ashes: even so also will I do unto them that hear me not, saith the Almighty Lord.
 
@@ -146,7 +146,7 @@
 
 **[2:32]** Embrace thy children until I come and shew mercy unto them: for my wells run over, and my grace shall not fail.
 
-**[2:33]** I Esdras received a charge of the Lord upon the mount Oreb, that I should go unto Israel; but when I came unto them, they set me at nought, and despised the commandment of the Lord.
+**[2:33]** I Esdras received a charge of the Lord upon the Mount Horeb, that I should go unto Israel; but when I came unto them, they set me at nought, and despised the commandment of the Lord.
 
 **[2:34]** And therefore I say unto you, O ye heathen, that hear and understand, look for your Shepherd, he shall give you everlasting rest; for he is nigh at hand, that shall come in the end of the world.
 
@@ -170,7 +170,7 @@
 
 **[2:44]** So I asked the angel, and said, Sir, what are these?
 
-**[2:45]** He answered and said unto me, These be they that have put off the mortal clothing, and put on the immortal, and have confessed the name of God: now are they crowned, and receive palms.
+**[2:45]** He answered and said unto me, These be they that have put off the mortal clothing, and put on the immortal, and have confessed the name of God: now are they crowned, and receive psalms.
 
 **[2:46]** Then said I unto the angel, What young person is it that crowneth them, and giveth them palms in their hands?
 
@@ -212,7 +212,7 @@
 
 **[3:17]** And it came to pass, that when thou leadest his seed out of Egypt, thou broughtest them up to the mount Sinai.
 
-**[3:18]** And bowing the heavens, thou didst set fast the earth, movedst the whole world, and madest the depths to tremble, and troubledst the men of that age.
+**[3:18]** And bowing the heavens, thou didst set fast the earth, movedst the whole world, and madest the depths to tremble, and troubledst the men of that rage.
 
 **[3:19]** And thy glory went through four gates, of fire, and of earthquake, and of wind, and of cold; that thou mightest give the law unto the seed of Jacob, and diligence unto the generation of Israel.
 
@@ -244,7 +244,7 @@
 
 **[3:33]** And yet their reward appeareth not, and their labour hath no fruit: for I have gone here and there through the heathen, and I see that they flow in wealth, and think not upon thy commandments.
 
-**[3:34]** Weigh thou therefore our wickedness now in the balance, and their’s also that dwell the world; and so shall thy name no where be found but in Israel.
+**[3:34]** Weigh thou therefore our wickedness now in the balance, and their’s also that dwell the world; and so shall thy name nowhere be found but in Israel.
 
 **[3:35]** Or when was it that they which dwell upon the earth have not sinned in thy sight? or what people have so kept thy commandments?
 
@@ -390,7 +390,7 @@
 
 **[5:18]** Up then, and eat bread, and forsake us not, as the shepherd that leaveth his flock in the hands of cruel wolves.
 
-**[5:19]** Then said I unto him, Go thy ways from me, and come not nigh me. And he heard what I said, and went from me.
+**[5:19]** Then said I unto him, Go thy ways from me, and come not nigh to me. And he heard what I said, and went from me.
 
 **[5:20]** And so I fasted seven days, mourning and weeping, like as Uriel the angel commanded me.
 
@@ -420,7 +420,7 @@
 
 **[5:33]** And I said, Speak on, my Lord. Then said he unto me, Thou art sore troubled in mind for Israel’s sake: lovest thou that people better than he that made them?
 
-**[5:34]** And I said, No, Lord: but of very grief have I spoken: for my reins pain me every hour, while I labour to comprehend the way of the most High, and to seek out part of his judgment.
+**[5:34]** And I said, No, Lord: but of very grief have I spoken: for my reigns pain me every hour, while I labour to comprehend the way of the most High, and to seek out part of his judgment.
 
 **[5:35]** And he said unto me, Thou canst not. And I said, Wherefore, Lord? whereunto was I born then? or why was not my mother’s womb then my grave, that I might not have seen the travail of Jacob, and the wearisome toil of the stock of Israel?
 
@@ -474,13 +474,13 @@
 
 **[6:4]** Or ever the heights of the air were lifted up, before the measures of the firmament were named, or ever the chimneys in Sion were hot,
 
-**[6:5]** And ere the present years were sought out, and or ever the inventions of them that now sin were turned, before they were sealed that have gathered faith for a treasure:
+**[6:5]** And here the present years were sought out, and or ever the inventions of them that now sin were turned, before they were sealed that have gathered faith for a treasure:
 
 **[6:6]** Then did I consider these things, and they all were made through me alone, and through none other: by me also they shall be ended, and by none other.
 
 **[6:7]** Then answered I and said, What shall be the parting asunder of the times? or when shall be the end of the first, and the beginning of it that followeth?
 
-**[6:8]** And he said unto me, From Abraham unto Isaac, when Jacob and Esau were born of him, Jacob’s hand held first the heel of Esau.
+**[6:8]** And he said unto me, From Abraham unto Isaac, when Jacob and Esau were born of him, Jacob’s hand held first the heal of Esau.
 
 **[6:9]** For Esau is the end of the world, and Jacob is the beginning of it that followeth.
 
